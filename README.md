@@ -23,4 +23,4 @@ Get your 2-color gradient code
 
 ->>>>>>>>>>>>>   Download this gradio.apk file >>>>>>>>>>>>>
 
- ![gradio_icon (1)](https://user-images.githubusercontent.com/36043230/91707200-1997e800-eb9d-11ea-93ed-b5e79bc050ab.png)
+ ![gradio_icon (1)](https://user-images.githubusercontent.com/36043230/91707200-1997e800-eb9d-11ea-93ed-b5e79bc050ab.png)      >>>>    https://bit.ly/31FJDjh
